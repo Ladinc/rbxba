@@ -1,2 +1,2 @@
 # rbxba
-This is the place of Adam's BA roblox. Linked to N/A
+This is the place of Roblox British Army.
